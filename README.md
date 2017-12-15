@@ -2,5 +2,4 @@
 
 I'm Alex and I'm a musician.
 
-🔥🔥🔥
 🎸🥁🎤
